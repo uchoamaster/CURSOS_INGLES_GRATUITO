@@ -1,4 +1,5 @@
 # CURSO DE INGLÊS GRATUITO
+## Links úteis que encontrei pelo Linkedin repostados e para não perder  ou me confundir, resolvi criar este Repositório para estudos e ajudar outras pessoas, toda ajuda e melhoria é bem vinda!
 INGLÊS PARA QUEM TEM PRESSA (GRATUITO) Cronogramas com sequência lógica de estudos + aulas gratuitas do YouTube para quem quer aprender inglês do zero, sair do intermediário - ou até já sabe, mas gostaria de revisar.
 
 | Provas   |      Níveis      |  Links |
