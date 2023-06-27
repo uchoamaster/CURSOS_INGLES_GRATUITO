@@ -66,7 +66,6 @@ Créditos: Vânia Paula de Freitas
 | 📌 Tricky American English Pronunciation | https://lnkd.in/e7_jHPy9 |
 | 📌 USA Learns | https://lnkd.in/eMS-vrw8 |
 | 📌 Write Professional Emails in English | https://lnkd.in/e4u4NBNe |
-| 📌 YouTube (aulas de inglês) | https://lnkd.in/e-jFHmwC |
 
 
 
