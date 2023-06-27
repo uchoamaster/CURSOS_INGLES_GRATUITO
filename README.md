@@ -47,6 +47,26 @@ Créditos: Vânia Paula de Freitas
 | 📌 Recursos sobre expressões idiomáticas e phrasal verbs |  https://lnkd.in/dwN-KSUp | 
 
 
+| Título   |      Link      | 
+|----------|:-------------:|
+| 📌 American English Speech | https://lnkd.in/ere9hWFx |
+| 📌 Basic English 1: Elementary | https://lnkd.in/eWfNW7z8 |
+| 📌 Basic English 2: Pre-Intermediate | https://lnkd.in/eZrz9dVy |
+| 📌 BBC Learning English | https://lnkd.in/e29zwUsV |
+| 📌 Business English: Finance and Economics | https://lnkd.in/e8zCrcSz |
+| 📌 Cambridge English | https://lnkd.in/ezAwUQyy |
+| 📌 English for Business and Entrepreneurship | https://lnkd.in/eeF4YyBH |
+| 📌 English for Career Development | https://lnkd.in/eg_eGXNM |
+| 📌 English for Healthcare | https://lnkd.in/eqeDypW2 |
+| 📌 English for Journalism | https://lnkd.in/eeucYzqS |
+| 📌 ESOL Courses | https://lnkd.in/epgVhbJT |
+| 📌 English for Technology | https://lnkd.in/e_TgDttX |
+| 📌 English Pronunciation in a Global World | https://lnkd.in/eRS-PHNF |
+| 📌 Speak English Professionally | https://lnkd.in/eRk6QRTg |
+| 📌 Tricky American English Pronunciation | https://lnkd.in/e7_jHPy9 |
+| 📌 USA Learns | https://lnkd.in/eMS-vrw8 |
+| 📌 Write Professional Emails in English | https://lnkd.in/e4u4NBNe |
+| 📌 YouTube (aulas de inglês) | https://lnkd.in/e-jFHmwC |
 
 
 
